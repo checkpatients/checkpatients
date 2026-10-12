@@ -1,6 +1,6 @@
 <div align="center">
 
-<img width="736" height="615" alt="checkeds" src="https://github.com/user-attachments/assets/db2c2995-a185-4bf1-9255-6ba5bbc1e054" />
+<img width="580" height="470" alt="checkeds" src="https://github.com/user-attachments/assets/db2c2995-a185-4bf1-9255-6ba5bbc1e054" />
 
 　
 
