@@ -26,7 +26,7 @@ $\small\textcolor{#ffcac4}{\textsf{huge mentions for my friends}}$
 
 [mochi](https://github.com/MALLEIDIA-CUDDL)⠀,⠀[leopa](https://github.com/nyctophobia)⠀,⠀[rei](https://github.com/Rei4ei)⠀,⠀[corei](https://github.com/childsignicalcorei)
 
-[emmy](https://github.com/enmitye)⠀,⠀[ri](https://github.com/theprincipia)⠀,⠀[null](https://github.com/null-leader)⠀,⠀[heaven](https://github.com/abyssegoistT)⠀,⠀[natalie](https://github.com/i5588n)⠀,⠀[airi](https://github.com/iskarsgf)
+[emmy](https://github.com/enmitye)⠀,⠀[ri](https://github.com/theprincipia)⠀,⠀[null](https://github.com/null-leader)⠀,⠀[heaven](https://github.com/abyssegoistT)⠀,⠀[natalie](https://github.com/i5588n)⠀,⠀[airi](https://github.com/iskarswife)
 
 　
 
