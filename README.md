@@ -31,3 +31,6 @@ $\small\textcolor{#ffcac4}{\textsf{huge mentions for my friends}}$
 　
 
 ${\textsf{\color{#ffadc3} they're my good doctors at all}}$
+
+
+</details>
