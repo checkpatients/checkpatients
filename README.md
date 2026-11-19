@@ -24,11 +24,11 @@ $\small\textcolor{#ffcac4}{\textsf{huge mentions for my friends}}$
 
 　
 
-[yuri ♡](https://github.com/AdiosT0reador)⠀,⠀[smiley](https://github.com/skephaloyaoi)⠀,⠀[kai](https://github.com/kaissyy)⠀,⠀[xenii](https://github.com/desmoduso) + [pau](https://github.com/sugarlune)⠀,⠀[jaide](https://github.com/jaidensr)⠀,⠀[sophie](https://github.com/heartmochii)⠀,⠀[chrys](https://github.com/chrysbewry)
+[yuri ♡](https://github.com/AdiosT0reador)⠀,⠀[smiley](https://github.com/skephaloyaoi)⠀,⠀[kai](https://github.com/kaissyy)⠀,⠀[xenii](https://github.com/desmoduso) + [pau](https://github.com/sugarlune)⠀,⠀[jaide](https://github.com/jaidensr)⠀,⠀[sophie](https://github.com/chryswife)⠀,⠀[chrys](https://github.com/Sophieshusband)
 
-[mochi](https://github.com/MALLEIDIA-CUDDL)⠀,⠀[leopa](https://github.com/nyctophobia)⠀,⠀[corei](https://github.com/childsignicalcorei)⠀,⠀[mateo](https://github.com/L1tCigarett3)
+[mochi](https://github.com/MALLEIDIA-CUDDL)⠀,⠀[leopa](https://github.com/nyctophobia)⠀,⠀[corei](https://github.com/UsualGu3st)⠀,⠀[mateo](https://github.com/L1tCigarett3)
 
-[emmy](https://github.com/enmitye)⠀,⠀[ri](https://github.com/theprincipia)⠀,⠀[null](https://github.com/null-leader)⠀,⠀[heaven](https://github.com/abyssegoistT)⠀,⠀[natalie](https://github.com/SPECIiALWEEK)⠀,⠀[airi](https://github.com/Bongsoong-a)⠀,⠀[mekki](https://github.com/dalerubio)
+[emmy](https://github.com/enmitye)⠀,⠀[ri](https://github.com/theprincipia)⠀,⠀[null](https://github.com/null-leader)⠀,⠀[heaven](https://github.com/abyssegoistT)⠀,⠀[airi](https://github.com/Bongsoong-a)
 
 　
 
